@@ -1,0 +1,1 @@
+# Seminar 2 - Linii importante in triunghi
